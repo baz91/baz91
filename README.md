@@ -42,7 +42,6 @@ N’hésitez pas à me contacter !
 ---
 
 **📧** bjmssounddesign@gmail.com  
-**📱** 06 32 82 65 52  
 
 ---
 
